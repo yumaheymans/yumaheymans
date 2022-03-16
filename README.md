@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @yumaheymans
-- 👀 I’m interested in 
+- 👀 I’m interested 
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate 
 - 📫 How to reach me yumaheymans@gmail.com
