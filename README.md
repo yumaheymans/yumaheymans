@@ -1,1 +1,2 @@
-@yumaheymans, https://o-mega.ai
+@yumaheymans
+https://o-mega.ai
